@@ -8,4 +8,3 @@ Meu nome é Gabrielle Alves
 - Medicina Veterinária 🐕
 - Música 🎹 
 
-![https://images.app.goo.gl/UTtR4yu1epPiuEqP7]
